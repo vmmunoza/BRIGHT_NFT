@@ -18,5 +18,7 @@ Social Media:
 https://t.co/lcdYERLg3W
 
 - **Tweeter:**
-
 https://twitter.com/BrightNFT_AI
+
+- **LinkedIn:**
+https://www.linkedin.com/company/bright-nft/
